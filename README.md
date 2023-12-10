@@ -1,3 +1,3 @@
 Проект Владимира Бойко ПМИ 3
 
-https://sfedu-my.sharepoint.com/:p:/g/personal/vboi_sfedu_ru/EfvFTL10LsVDsUuYDtiCdksB9HFhXMirUPyCqNAbHm71kg?e=Hx93y6
+Презентация: https://sfedu-my.sharepoint.com/:p:/g/personal/vboi_sfedu_ru/EfvFTL10LsVDsUuYDtiCdksB9HFhXMirUPyCqNAbHm71kg?e=Hx93y6
